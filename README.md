@@ -1,4 +1,3 @@
-![GaganpreetKaurKalsi (1600 × 840 px) (3)]()
 
 <br>
 
